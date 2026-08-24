@@ -1,16 +1,18 @@
-## Hi there 👋
+𝑾𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒂𝒄𝒄𝒐𝒖𝒏𝒕! 
+𝑴𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝑮𝒂𝒊𝒍, 𝒚𝒐𝒖 𝒄𝒂𝒏 𝒄𝒂𝒍𝒍 𝒎𝒆 𝒎𝒊𝒍𝒌/𝒎𝒊𝒍𝒌𝒚 𝒐𝒓 𝒂𝒔𝒕𝒓𝒐! 
+𝑰𝒕'𝒔 𝒏𝒊𝒄𝒆 𝒕𝒐 𝒎𝒆𝒆𝒕 𝒚𝒐𝒖 𝒈𝒖𝒚𝒔!
+𝑰'𝒎 𝒂 𝑫𝒂𝒏𝒅𝒚'𝒔 𝒘𝒐𝒓𝒍𝒅 𝒇𝒂𝒏 𝒂𝒏𝒅 𝑰 𝒈𝒐 𝒊𝒏 𝒅𝒊𝒇𝒇𝒆𝒓𝒆𝒏𝒕 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 𝒕𝒐𝒐 𝒍𝒊𝒌𝒆 𝒄𝒓𝒌, 𝒂𝒉𝒂 𝒂𝒏𝒅 etc(≧∇≦)! 
 
-<!--
-**AstroNoval/AstroNoval** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝑴𝒚 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓 𝒊𝒔 𝒎𝒐𝒔𝒕 𝒅𝒆𝒇𝒊𝒏𝒊𝒕𝒆𝒍𝒚 𝒂𝒔𝒕𝒓𝒐 𝒏𝒐𝒗𝒂𝒍𝒊𝒕𝒆 𝒉𝒆'𝒔 𝒗𝒆𝒓𝒚 𝒎𝒖𝒄𝒉 𝒂𝒅𝒐𝒓𝒂𝒃𝒍𝒆! 
 
-Here are some ideas to get you started:
+𝑰 𝒈𝒐𝒕 𝒉𝒊𝒎 𝒂 𝒎𝒐𝒏𝒕𝒉 𝒂𝒈𝒐, 𝒉𝒆'𝒔 𝒎𝒚 𝒗𝒆𝒓𝒚 𝒇𝒊𝒓𝒔𝒕 𝒎𝒂𝒊𝒏 𝒕𝒐𝒐𝒏!!! 𝑰'𝒎 𝒑𝒍𝒂𝒏𝒏𝒊𝒏𝒈 𝒕𝒐 𝒈𝒆𝒕 𝒗𝒆𝒆 𝒐𝒓 𝑺𝒉𝒆𝒍𝒍𝒚 𝒊𝒇 𝑰 𝒉𝒂𝒗𝒆 𝒆𝒏𝒐𝒖𝒈𝒉 𝒕𝒊𝒎𝒆 𝒕𝒐 𝒑𝒍𝒂𝒚. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝑴𝒚 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒐𝒐𝒌𝒊𝒆 𝒊𝒏 𝒄𝒐𝒐𝒌𝒊𝒆 𝒓𝒖𝒏 𝒌𝒊𝒏𝒈𝒅𝒐𝒎 𝒉𝒂𝒔 𝒕𝒐 𝒃𝒆 𝒔𝒊𝒍𝒆𝒏𝒕 𝒔𝒂𝒍𝒕 𝒄𝒐𝒐𝒌𝒊𝒆!!! (𝑷.𝒔 𝑰 𝒘𝒂𝒔 𝒌𝒏𝒐𝒘𝒏 𝒕𝒐 𝒃𝒆 𝒔𝒊𝒍𝒆𝒏𝒕𝒔𝒂𝒍𝒕𝒌𝒊𝒔𝒔𝒆𝒓𝟔𝟕 𝒘𝒉𝒆𝒏 𝑰 𝒖𝒔𝒆𝒅 𝒕𝒐 𝒃𝒆 𝒂 𝒃𝒊𝒈 𝒇𝒂𝒏 𝒐𝒇 𝒉𝒊𝒎.. 𝒅𝒊𝒔𝒍𝒊𝒌𝒆𝒅 𝒉𝒊𝒎 𝒂𝒇𝒕𝒆𝒓 𝒕𝒉𝒐𝒔𝒆 𝒄𝒓𝒂𝒛𝒚 𝒇𝒂𝒏𝒔 𝒔𝒉𝒊𝒑𝒑𝒊𝒏𝒈 𝒉𝒊𝒎 𝒘𝒊𝒕𝒉 𝒆𝒍𝒅𝒆𝒓 𝑭𝒂𝒆𝒓𝒊𝒆..)
+<img width="338" height="338" alt="ebf8b953-de90-4ca5-8de9-67b53062399c" src="https://github.com/user-attachments/assets/2ecd276d-77b2-41a4-bae6-1bd87a825557" />
+
+𝑨𝒏𝒚𝒘𝒂𝒚𝒔! 𝑰𝒎 𝒂𝒏 𝒂𝒓𝒕𝒊𝒔𝒕, 𝑰 𝒍𝒐𝒗𝒆 𝒕𝒐 𝒅𝒓𝒂𝒘 𝒂𝒏𝒅 𝒕𝒐 𝒍𝒊𝒔𝒕𝒆𝒏 𝒕𝒐 𝒎𝒖𝒔𝒊𝒄 𝒂𝒏𝒅 𝒆𝒂𝒕!! 
+<img width="554" height="554" alt="1000177124" src="https://github.com/user-attachments/assets/a3a97084-7aa6-40b1-8e71-207a3a407844" />
+
+𝑰 𝒕𝒉𝒊𝒏𝒌 𝒕𝒉𝒆𝒔𝒆 𝒘𝒊𝒍𝒍 𝒃𝒆 𝒂𝒍𝒍! 𝑰 𝒘𝒊𝒍𝒍 𝒖𝒑𝒅𝒂𝒕𝒆 𝒎𝒚 𝒓𝒆𝒂𝒅𝒎𝒆 𝒂𝒔 𝒔𝒐𝒐𝒏 𝒂𝒔 𝑰 𝒄𝒂𝒏!!! 𝑰 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖 𝒂𝒍𝒍 ˙˚ʚ(´◡`)ɞ˚˙
+
+<img width="1543" height="1797" alt="caramel_20260805180527" src="https://github.com/user-attachments/assets/2a9480ee-39f3-4f0b-b7f3-81e361aa4e3c" />
